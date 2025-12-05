@@ -1,5 +1,5 @@
 Do not bring me into drama!
-[columbina (1)](https://github.com/user-attachments/assets/c86f41d8-de16-4a2c-b431-a00ca0351884)
+
 
 𝕳𝖊𝖑𝖑𝖔 𝖎𝖒 𝕸𝖎𝖟𝖚𝖐𝖎 𝖔𝖗 𝕬𝖐𝖆𝖘𝖍𝖚 𝖔𝖗 𝖞𝖔𝖚 𝖈𝖆𝖓 𝖈𝖆𝖑𝖑 𝖒𝖊 𝕭𝖎𝖓𝖆
 20
